@@ -3,4 +3,3 @@
 💡 I'm always eager to collaborate on exciting projects and learn new technologies.
 📫 You can reach me at codershrikant@gmail.com. Let's connect and build something amazing together!
 😄 Pronouns: He/Him
-⚡ Fun fact: I can solve a Rubik's Cube in under a minute!
